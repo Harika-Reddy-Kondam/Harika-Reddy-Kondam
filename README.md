@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Harika-Reddy-Kondam
 - 👀 I’m interested in playing tennis and chess.
-- 🌱 I’m currently learning Maters 
+- 🌱 I have completed Maters. 
 - 💞️ I’m looking to collaborate any start up
 - 📫 How to reach me harika05b6@gmail.com
 
