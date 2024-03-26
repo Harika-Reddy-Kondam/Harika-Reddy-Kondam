@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Harika-Reddy-Kondam
+- 👋 Hi, I’m @Harika-Reddy
 - 👀 I’m interested in playing tennis and chess.
 - 🌱 I have completed Maters. 
 - 💞️ I’m looking to collaborate any start up
